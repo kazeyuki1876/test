@@ -1,1 +1,3 @@
-スーバーゲームクリエイター　三年　ショウ　ホウセイ（ZHOUFANGZHENG）
+gamecreater
+Three years
+ZHOUFANGZHENG
